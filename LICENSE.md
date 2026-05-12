@@ -1,4 +1,4 @@
-# 
+# Enhance KeePass for PC | KeePass for Windows with advanced KeePass for PC | KeePass for Windows Extension | folders + encryption, the #1 extension. Includes folders and encryption
 
 
 
